@@ -6,7 +6,9 @@
 
     I do not tolerate cocky scripters on here.
     
-     I'f I'm having issues with your script Imma tell you what your doing wrong, If you think I'm wrong I will tell you if in fact wrong.
+     I'f I'm having issues with your script Imma tell you what your doing wrong, If you think I'm wrong I will tell you if in fact I am wrong.
+     
+     
     I DO NOT put up with know it alls.
 
 <!---
