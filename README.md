@@ -10,6 +10,10 @@
      
      
     I DO NOT put up with know it alls.
+    
+    this includes the little man "MonkeyWhisper" who conitinues to get schooled after asking a simple question aobut a script and got owned when he got
+   called out on horrible attitude of not reading a proper sentance and understanding the question.
+   Props to you MonkeyWhisper  for earning the bigger terd nugget award in chatter.
 
 <!---
 Soldierofthelam/Soldierofthelam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
