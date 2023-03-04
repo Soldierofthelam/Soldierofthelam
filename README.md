@@ -12,8 +12,8 @@
     I DO NOT put up with know it alls.
     
     this includes the little man "MonkeyWhisper" who continues to get schooled after asking a simple question about a script and got owned when he got
-   called out on horrible attitude of not reading a proper sentence and understanding the question instead reverted to attacking the individual cause he lacks the intelligence to a proper dialect with a person who had a concearned question.
-   Props to you MonkeyWhisper  for earning the bigger terd nugget award in chatter.
+   called out on horrible attitude of not reading a proper sentence and understanding the question instead reverted to attacking the individual because MonkeyWhisper lacks the intelligence to a proper dialect with a person who had a concearned question.
+   Props to you MonkeyWhisper  for earning the biggest terd nugget award in chatter.
 
 <!---
 Soldierofthelam/Soldierofthelam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
